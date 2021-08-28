@@ -1,1 +1,7 @@
 # Computational-Galois-Theory
+
+
+
+
+
+hyhyjtn
